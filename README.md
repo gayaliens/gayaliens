@@ -1,4 +1,5 @@
-## Hi there 👋
+![image](https://github.com/user-attachments/assets/317873e4-6df3-478e-b410-b3c8d175be9f)
+
 
 <!--
 **gayaliens/gayaliens** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
