@@ -1,4 +1,6 @@
-![image](https://file.garden/Zl0NtAzAvyz0wM5S/Untitled161_20250423014320.png)
+->cool and new profile thing coming soon im lazy i dont feel likr doing it right niw<-
+->read my rentry (i know its not really rentry) very importnt very cool<-
+->i got bad bitches at the crib FAHHH u mean. where dey at doe :joy: 🎵where 🎹where dey at doe <-
 ![](https://komarev.com/ghpvc/?username=gayaliens&color=grey)
 
 
