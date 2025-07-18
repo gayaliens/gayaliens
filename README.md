@@ -6,7 +6,7 @@ i got bad bitches at the crib FAHHH u mean. where dey at doe :joy: 🎵where �
 
 ![](https://komarev.com/ghpvc/?username=gayaliens&color=grey)
 
-
+hello squad i like one wheat mark and stranger things and fallout and emo music Yesssssssssss :fire:
 <!--
 **gayaliens/gayaliens** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
