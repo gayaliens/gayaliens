@@ -7,6 +7,8 @@ i got bad bitches at the crib FAHHH u mean. where dey at doe :joy: 🎵where �
 ![](https://komarev.com/ghpvc/?username=gayaliens&color=grey)
 
 hello squad i like one wheat mark and stranger things and fallout and emo music Yesssssssssss :fire:
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=125wnkazo8wof9k9m2mgoroi3&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color_cover=false&bar_color=969696)](https://github.com/kittinan/spotify-github-profile)
 <!--
 **gayaliens/gayaliens** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
