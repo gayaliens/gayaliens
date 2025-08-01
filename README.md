@@ -6,7 +6,7 @@ i got bad bitches at the crib FAHHH u mean. where dey at doe :joy: ğŸµwhere ğŸ
 
 ![](https://komarev.com/ghpvc/?username=gayaliens&color=grey)
 
-hello squad i like one wheat mark and stranger things and fallout and emo music Yesssssssssss :fire:
+hello squad i like one wheat mark and stranger things and death note and fallout and emo music Yesssssssssss :fire:
 
 
 <!--
