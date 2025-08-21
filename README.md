@@ -1,8 +1,4 @@
-cool and new profile thing coming soon im lazy i dont feel likr doing it right niw
-
-read my rentry (i know its not really rentry) very importnt very cool
-
-i got bad bitches at the crib FAHHH u mean. where dey at doe :joy: 🎵where 🎹where dey at doe 
+thank you for copying my entire layout on here, @boydivision
 
 ![](https://komarev.com/ghpvc/?username=gayaliens&color=grey)
 
