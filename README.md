@@ -1,4 +1,4 @@
-thank you for copying my entire layout on here, @boydivision
+Ill make a new collage for my profile soon
 
 ![](https://komarev.com/ghpvc/?username=gayaliens&color=grey)
 
