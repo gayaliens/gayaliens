@@ -2,7 +2,11 @@ Ill make a new collage for my profile soon
 
 ![](https://komarev.com/ghpvc/?username=gayaliens&color=grey)
 
-hello squad i like one wheat mark and stranger things and death note and fallout and emo music Yesssssssssss :fire:
+hello! 
+
+Fandoms: Death Note, Evangelion, Mob Psycho 100, Stranger Things, One Wheat Mark, Scott Pilgrim (COMICS BRUH), Fallout (4 and New Vegas), Vocaloid, Bandom (MCR, FOB, P!ATD, etc.)
+
+Characters I lieeek: Mello (Mihael Keehl), Matt (Mail Jeevas), Kaworu Nagisa, Will + Jonathan Byers, Neil Nordegraf, Stephen Stills, Nick Valentine, KAITO, Gakupo
 
 
 <!--
