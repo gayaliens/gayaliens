@@ -1,12 +1,8 @@
-Ill make a new collage for my profile soon
+![](https://file.garden/Zl0NtAzAvyz0wM5S/Untitled67_20251115122811.png)
+weird freak
 
 ![](https://komarev.com/ghpvc/?username=gayaliens&color=grey)
 
-hello! 
-
-Fandoms: Death Note, Evangelion, Mob Psycho 100, Stranger Things, One Wheat Mark, Scott Pilgrim (COMICS BRUH), Fallout (4 and New Vegas), Vocaloid, Bandom (MCR, FOB, P!ATD, etc.)
-
-Characters I lieeek: Mello (Mihael Keehl), Matt (Mail Jeevas), Touta Matsuda, Teru Mikami, Kaworu Nagisa, Will + Jonathan Byers, Neil Nordegraf, Stephen Stills, Nick Valentine, KAITO, Gakupo
 
 
 <!--
