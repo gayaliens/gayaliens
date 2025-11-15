@@ -1,4 +1,4 @@
-![](https://file.garden/Zl0NtAzAvyz0wM5S/Untitled67_20251115122811.png)
+![](https://file.garden/Zl0NtAzAvyz0wM5S/Untitled67_20251115130040.png)
 weird freak
 
 ![](https://komarev.com/ghpvc/?username=gayaliens&color=grey)
