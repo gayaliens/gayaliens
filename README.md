@@ -6,7 +6,7 @@
         
 ![kI4R9na1cv](https://github.com/user-attachments/assets/160bd3a7-456a-4fbb-a8af-19b8763039df)
 
-<h4>Jake . 17 . gay</h4>
+<h4>Jake . 17 . queer</h4>
 
 <div>
 
