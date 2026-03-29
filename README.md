@@ -43,7 +43,7 @@
 
 <div>
 
-<img width="1080" height="1116" alt="Screenshot_20260328-130313" src="https://github.com/user-attachments/assets/a6813c9f-8593-4f9e-adf5-a2ab33883d83" />
+<img width="300" height="310" alt="Screenshot_20260328-130313" src="https://github.com/user-attachments/assets/a6813c9f-8593-4f9e-adf5-a2ab33883d83" />
 
 
 
