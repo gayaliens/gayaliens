@@ -53,6 +53,7 @@
 </div>
 <p>a schizophrenic is talking listen and learn</p>
 <p> i like to consume media, draw, and write. I watch a lot of movies and listen to a lot of music. I can be a little weird and i struggle to keep close friendships BUT i promise im cool and chill i just forget to talk to people. this doesnt mean i hate you im a busy guy. </p>
+<p> PLEEEEASE INTERACT WITH ME I WANNA MAKE MORE FRIENDS ESPECIALLY IN THE REGRETEVATOR FANDOM OKAIII</p>
 <div>
 
 ![](https://komarev.com/ghpvc/?username=gayaliens&color=grey)
