@@ -37,18 +37,13 @@
 <h4>Jake . 17 . queer</h4>
 
 <div>
-
-<img width="300" height="310" alt="Screenshot_20260328-130313" src="https://github.com/user-attachments/assets/a6813c9f-8593-4f9e-adf5-a2ab33883d83" />
-
+<img width="563" height="537" alt="78689d7ccaad94282e426a314fcd3b2c" src="https://github.com/user-attachments/assets/2cb09551-2018-46dd-9d81-e1e67ba9365d" />
 
 
-  
-  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=125wnkazo8wof9k9m2mgoroi3&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=a14eb1&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
   
 </div>
 <p>a schizophrenic is talking listen and learn</p>
 <p> i like to consume media, draw, and write. I watch a lot of movies and listen to a lot of music. I can be a little weird and i struggle to keep close friendships BUT i promise im cool and chill i just forget to talk to people. this doesnt mean i hate you im a busy guy. </p>
-<p> PLEEEEASE INTERACT WITH ME I WANNA MAKE MORE FRIENDS ESPECIALLY IN THE REGRETEVATOR FANDOM OKAIII</p>
 <div>
 
 ![](https://komarev.com/ghpvc/?username=gayaliens&color=grey)
