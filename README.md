@@ -34,7 +34,7 @@
 
 
 
-<h4>Jay . 17 . queer</h4>
+<h4>Millie / Jay . 17 . queer</h4>
 
 <div>
 <img width="563" height="537" alt="78689d7ccaad94282e426a314fcd3b2c" src="https://github.com/user-attachments/assets/2cb09551-2018-46dd-9d81-e1e67ba9365d" />
